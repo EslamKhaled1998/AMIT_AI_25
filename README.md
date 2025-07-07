@@ -1,2 +1,0 @@
-# AMIT_AI_25
-AMIT_AI_25
